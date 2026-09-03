@@ -22,4 +22,4 @@ Consultant ERP SAP en formation, spécialisé sur les modules **SD (Sales & Dist
 
 ## 📫 Contact
 
-- LinkedIn : [Raphaël Legros](https://www.linkedin.com/in/%F0%9F%8C%8Drapha%C3%ABl-legros-833454111/)
+- LinkedIn : [Raphaël Legros](https://www.linkedin.com/in/raphaellegros51/)
